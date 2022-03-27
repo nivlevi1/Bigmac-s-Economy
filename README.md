@@ -1,1 +1,1 @@
-# Bigmac-s-Economy
+# BigMac Economy
